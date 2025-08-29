@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @NarutoTheFriend
+- 👋 Hi, I’m zio
 - 👀 I’m interested in anime
 - 🌱 I’m currently learning School stuff (Garbage)
 - 💞️ I’m looking to collaborate on nothing i guess
